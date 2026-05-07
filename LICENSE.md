@@ -1,4 +1,4 @@
-
+Alfred for macOS premium Script: custom themes & calendar integration is the best Alfred for macOS script, featuring custom themes and calendar integration. Safe, efficient, and
 
 
 
